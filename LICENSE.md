@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot Script advanced, the #1 Script. Includes one-hit kill and auto-collect for
 
 
 
